@@ -1,1 +1,1 @@
-# SIGNOS
+# LSE Avatar
